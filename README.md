@@ -2,7 +2,7 @@
 Explaining why you see an imaginary horizon on a fckng FLAT Earth ..
 
 here we go .. Little Blue Ball DEBUNKED ..
-### First of All , you have to unlear most of BUL$HIT the may have teach you about light 
+### First of All , you have to unlearn most of BUL$HIT the may have teach you about light 
 ![BULLSHIT](bullshit1.png)  
 ![more BULLSHIT](bullshit2.gif)  
 
